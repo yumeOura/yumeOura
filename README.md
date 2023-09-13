@@ -1,4 +1,4 @@
 **YUME OURA**
 
-@yume.ouca <-- intagram 
+@yume.ouca <-- instagram 
 
